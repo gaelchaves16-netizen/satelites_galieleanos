@@ -13,3 +13,10 @@ siendo visibles incluso con telescopios de baja potencia.
 **Figura 1**. Los cuatro satélites galileanos, 
 en una composición que compara sus tamaños con el tamaño de Júpiter. 
 En orden descendente, son *Ío*, *Europa*, *Ganimedes* y *Calisto*.
+
+Otros satélites de Júpiter son Amaltea, Adrastea y Lisitea
+
+Júpiert es el planeta más grande del sistema solar y el quito en orden de lejanía al sol 
+
+
+
